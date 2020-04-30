@@ -74,7 +74,7 @@
 73.胖子视频：http://www.pangzi.ca/
 74.海外影院：https://www.haiwaiyy.com/
 75.好吧：http://hao8tv.com/
-76.日本影视：http://www.jp2468.com/
+
 77.TNT影视：http://www.tntdy2.vip/
 78.优乐电影网：http://www.youlebe.com/
 79.面包网：https://www.mianbao99.com/
