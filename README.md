@@ -106,10 +106,9 @@
 105.碟影视界：http://www.952780.com/
 106.皮皮影视网：https://www.taiks.com/
 107.ADC电影网：https://www.adcmove.com/
-108.欧西电影：https://www.ouxi.me/
-109.青鸟影视：https://www.qingniao.me/
-110.盐酥鸡：https://www.ysuzy.com/
-111.爱电影天堂：https://www.idytt.com/
+108.青鸟影视：https://www.qingniao.me/
+109.盐酥鸡：https://www.ysuzy.com/
+110.爱电影天堂：https://www.idytt.com/
 
 
             磁力影视
